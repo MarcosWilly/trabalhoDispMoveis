@@ -1,2 +1,0 @@
-# trabalhoDispMoveis
-# trabalhoDispMoveis
